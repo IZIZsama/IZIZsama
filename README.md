@@ -1,6 +1,7 @@
 ### こんにちは👋
 
 ∀･)____________☆sтдят★____________(･∀･)
+((((;ﾟ;Д;ﾟ;))))ｶﾀｶﾀｶﾀｶﾀｶﾀｶﾀｶﾀｶﾀｶﾀ
 <!--
 **IZIZsama/IZIZsama** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
